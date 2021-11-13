@@ -6,4 +6,4 @@ You can <a href="mailto:bjoern.jeske@sqrrl.de">contact me</a> for any kind of di
 ## Latest
 
 [CHANEL](https://www.chanel.com/en_WW/fragrance-beauty/fragrance/c/n5-marion-cotillard.html) 
-Brand to Boutique Digital Foldes 1920px
+Brand to Boutique Digital Folders 1920px
