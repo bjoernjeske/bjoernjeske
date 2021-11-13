@@ -5,4 +5,4 @@ You can <a href="mailto:bjoern.jeske@sqrrl.de">contact me</a> for any kind of di
 
 ## Latest
 
-[CHANEL](https://www.chanel.com/en_WW/fragrance-beauty/fragrance/c/n5-marion-cotillard.html) N°5 — 100 years N°5 — Mobile Design Folders 1920x1080px
+[CHANEL N°5 ](https://www.chanel.com/en_WW/fragrance-beauty/fragrance/c/n5-marion-cotillard.html) — BtoB 1920x1080px
