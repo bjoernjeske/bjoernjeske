@@ -1,6 +1,6 @@
 # Björn Jeske
 
-Björn Jeske ist freier Konzeptioner, Texter, Gestalter von erfreulichen Digitalsachen. Sein Erfahrungsschatz lässt einen 200 Jahre alten weißen Typen vermuten, dabei zippte er die ganze Experience in knapp 20 und sie halten ihn meist für irgendwas südländisches. 
+Björn Jeske ist freier Konzeptioner, Texter, Gestalter von erfreulichen Digitalsachen. Sein Erfahrungsschatz lässt einen 200 Jahre alten weißen Typen vermuten, dabei zippte er die ganze Experience in knapp 20 Jahre und sie halten ihn meist für irgendwas südländisches. 
 
 Von Erstkonzeption bis Feenstaub war schon alles dabei. Außerdem wird er angeheuert als *brain from above* für knifflige Brainstormings aka Design Sprints. Clients wie <a href="https://chanel.com">CHANEL</a> und <a href="https://basf.com">BASF</a> hat er ebenso drauf wie Startup. In hippen Agenturen weiß er, wo noch Espresso gebunkert ist. Filmschaffende rettet er mit Ghostwriting. In Meetings öffnet er Fenster.
 
