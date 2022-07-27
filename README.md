@@ -6,12 +6,12 @@ Concept/Design: Von Erstkonzeption bis Feenstaub: alles dabei. Außerdem wird er
 
 Wie alle Top-Freelancer ist natürlich auch er ausgebucht bis, *wait a sec/checks his cal*, August 2043. Für People mit irrem Glanz in den Augen macht er aber VIP Bagdes klar. Also trau dich einfach und <a href="mailto:bjjeske@gmail.com">schreib eine E-Mail</a>.
 
-Er versucht momentan herauszufinden, wie die eigene Website aussehen könnte, schreibt Short Storys und Minidramen für Literaturmagazine und sammelt Rohstoff für seinen ersten Roman.
+Er versucht momentan herauszufinden, wie die eigene Website aussehen könnte, schreibt Short Storys und Drama für Literaturmagazine und sammelt Rohstoff für seinen ersten Roman.
 
 ## News
 
 * Das Minidrama "Zuckerrieseln" wurde veröffentlicht in dem Magazin für Kunst, Kultur und Gesellschaft [eXperimenta](https://experimenta.de/) (print)
-* Das Piece "To-Dos" wurde veröffentlicht in dem Literatur- und Kunstmagazin [absolut-zine](https://www.absolut-zine.com/) (digital)
+* Das Stück "To-Dos" wurde veröffentlicht in dem Literatur- und Kunstmagazin [absolut-zine](https://www.absolut-zine.com/) (digital)
 
 ## Toolbox
 
