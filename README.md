@@ -28,6 +28,7 @@ Er versucht momentan herauszufinden, wie eine eigene Website aussehen könnte, s
 
 * Concept/UXD
 * Creative Concept
-* Screen Design 
+* Screen Design/UI
 * Web Design
 * Text/Story
+* Literatur/Kunst
