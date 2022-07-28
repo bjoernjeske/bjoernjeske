@@ -31,4 +31,4 @@ Er versucht momentan herauszufinden, wie eine eigene Website aussehen könnte un
 ## News
 
 * Das Minidrama "Zuckerrieseln" wurde veröffentlicht in dem Magazin für Kunst, Kultur und Gesellschaft [eXperimenta](https://experimenta.de/) (print)
-* Das Stück "To-Dos" wurde veröffentlicht in dem Literatur- und Kunstmagazin [absolut-zine](https://www.absolut-zine.com/) (digital)
+* Das Minidrama "To-Dos" wurde veröffentlicht in dem Literatur- und Kunstmagazin [absolut-zine](https://www.absolut-zine.com/) (digital)
