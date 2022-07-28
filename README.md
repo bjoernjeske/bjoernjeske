@@ -6,7 +6,7 @@ Von Erstkonzeption bis Feenstaub ist alles dabei. Außerdem wird er angeheuert a
 
 Für KundInnen mit irrem Glanz in den Augen macht er VIP-Plätze klar: Also trau dich einfach und <a href="mailto:bjjeske@gmail.com">schreib gerne eine E-Mail</a>.
 
-Er versucht momentan herauszufinden, wie eine eigene Website aussehen könnte und schreibt *short storys* für Kunst- und Literaturmagazine.
+Er versucht momentan herauszufinden, wie eine eigene Website aussehen könnte und schreibt *Short Storys* für Kunst- und Literaturmagazine.
 
 ## Toolbox
 
